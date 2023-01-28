@@ -10,7 +10,10 @@ So what is astronomy you may ask, Astronomy is the study of everything in the un
 ![alt text](https://c4.wallpaperflare.com/wallpaper/787/565/98/astronaut-4k-8k-hd-wallpaper-preview.jpg)
 
 
+Now Lets talk 𝒫𝓁𝒶𝓃𝑒𝓉𝓈, So what are planets exactly 
 
+A planet is a celestial body that (a) is in orbit around the Sun, (b) has sufficient mass for its self-gravity to overcome rigid body forces so that it assumes a hydrostatic equilibrium (nearly round) shape, and (c) has cleared the neighbourhood around its orbit.
+There 8 known planets in the solar system and theyre known as Mercury, Venus, Earth, Mars, Jupiter, Saturn, Uranus and Neptune.
 
 
 
